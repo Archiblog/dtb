@@ -1,4 +1,4 @@
-# Potteries Thinkbelt
+# Potteries Thinkbelt study: Further ongoing research
 #### A plan for an advanced educational industry in North Staffordshire
 ###### Cedric Price
 
