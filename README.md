@@ -1,2 +1,2 @@
-# atom
-Design for new learning for a new town
+# Dukeries Thinkbelt
+A plan for an advanced educational industry in West Nottinghamshire
